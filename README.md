@@ -1,0 +1,2 @@
+# Dominder
+privacy policy
